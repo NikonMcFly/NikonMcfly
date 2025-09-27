@@ -28,3 +28,5 @@ Passionate about building products that last.
 🐙 [Github](https://https://github.com/NikonMcFly)
 
 ▶️ [Youtube](https://www.youtube.com/@ozup)
+
+📸 [instagram](https://www.instagram.com/ozup__/)
