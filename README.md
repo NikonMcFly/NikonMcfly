@@ -16,11 +16,14 @@ Passionate about building products that last — not chasing funding.
 🔹 Current Work
 
 🚀 Leading engineering at Agreedment, where we’re building tools to modernize real estate technology.
+🌐 [Agreedment](https://agreedment.com)
 
 🔹 Connect with Me
 
-🌐 sosborne.co
+🌐 [sosborne.co](https://sosborne.co)
 
-💼 LinkedIn
+💼[Linkedin](https://www.linkedin.com/in/steven-osborne-98ba59278/)
 
-🐙 GitHub
+🐙 [Github](https://https://github.com/NikonMcFly)
+
+▶️ [Youtube](https://www.youtube.com/@ozup)
