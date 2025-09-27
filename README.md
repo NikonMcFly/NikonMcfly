@@ -11,7 +11,7 @@ Experienced in React.js, AngularJS, Golang, Python, Redis, Docker, and cloud arc
 
 Focused on system architecture, API design, and SaaS platforms that simplify complex workflows.
 
-Passionate about building products that last — not chasing funding.
+Passionate about building products that last.
 
 🔹 Current Work
 
